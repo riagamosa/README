@@ -14,11 +14,14 @@ The classes I'm currently taking are:
     5. Critical Thinking
 
 During my free time, I enjoy:
-    - Going on calm, therapeutic walks
-    - Spending time with friends and family
-    - Cooking 
+    - Going on calm, therapeutic walks 🚶🏻‍♀️‍➡️
+    - Spending time with friends and family 
+    - Cooking 👩🏻‍🍳
 
-    
+
+
+
+
 
 
 
