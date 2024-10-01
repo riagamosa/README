@@ -18,7 +18,9 @@ During my free time, I enjoy:
     - Spending time with friends and family 
     - Cooking 👩🏻‍🍳
 
+You can reach me through my:
 
+School email: (ria.gamosa@edu.sait.ca)
 
 
 
