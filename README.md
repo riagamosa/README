@@ -13,7 +13,12 @@ The classes I'm currently taking are:
     4. Digital Media Foundations
     5. Critical Thinking
 
+During my free time, I enjoy:
+    - Going on calm, therapeutic walks
+    - Spending time with friends and family
+    - Cooking 
 
+    
 
 
 
