@@ -20,7 +20,9 @@ During my free time, I enjoy:
 
 You can reach me through my:
 
-School email: [ria.gamosa@edu.sait.ca](ria.gamosa@edu.sait.ca)
+School email: [ria.gamosa@edu.sait.ca]
+
+
 
 
 
